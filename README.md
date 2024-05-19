@@ -9,3 +9,13 @@ The lawyers now must respond in writing to the complaints. I am assuming that co
 This repository is a collection of counter arguments to what I assume are the defenses being made by the lawyers whom have been complained against, as well as arguments and complaints of my own.
 
 For now I'm just gonna create leading titles and blank files. I'd really prefer my life's aperture to become adjusted relatively soon so I can consider this all a part of my past, at which point I'll just leave things up to the actual lawyers. I have no guarantees of any change to my life happening soon, so I'm making a space for this just in case, and providing an outline to hopefully have a written and reviewable document before the lawyers in question can write to the bar themselves, as that would be funny to me. I'm hoping I don't have to elaborate further, but it's a nice creative exercise at the least as, due to the deceitful and fradulent nature of the lawyer's actions, I cannot confirm at this time that this is truly happening, so what cannot be proven remains a fiction to me.
+
+### 05-18-2024
+
+I've begun considering the possibility that this could be just a straight forward criminal investigation into coordinated medical malpractice. That would also make sense, if not more.
+
+In any case: I'm not changing the name of this repository. Also, felonies on the part of lawyers imply a more straightforward disciplinary investigation and process, so I think this all still tracks.
+
+And yes, I'll testify as and if needed, gladly. No, I will not try and be cute or show off during cross examination, to be clear. I just like to talk shit, I'll play it straight up, if we get to that part.
+
+Still a fiction at this point, however.
