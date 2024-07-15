@@ -1,4 +1,8 @@
-# Letters to the NY State Bar Association
+# Letters to the NY and CA State Bar Associations and Court Systems
+
+### 07-15-2024
+
+I'm updating the name of this repo to reflect that the information may also be important to the California State Bar and Supreme Court, the latter of which may be deciding on an appeal to the former group's decisions on attorney discipline.
 
 ### 07-12-2024
 
