@@ -8,6 +8,10 @@
 >
 > - From [N.Y. Jud. Law § 487](https://casetext.com/statute/consolidated-laws-of-new-york/chapter-judiciary/article-15-attorneys-and-counsellors/section-487-misconduct-by-attorneys#:~:text=An%20attorney%20or%20counselor%20who,any%20party%3B%20or%2C%202.) 
 
+> 6106. The commission of any act involving moral turpitude, dishonesty or corruption, whether the act is committed in the course of his relations as an attorney or otherwise, and whether the act is a felony or misdemeanor or not, constitutes a cause for disbarment or suspension.
+>
+> - From [2023 California Code Business and Professions Code - Disciplinary Authority of the Courts - Section 6106.](https://law.justia.com/codes/california/code-bpc/division-3/chapter-4/article-6/section-6106/)
+
 ### My parents motivations aren't realistic and the lawyers are being deceitful in holding this back from my parents
 
 My parents are motivated to play along with this shenanigan for one reason only: helping my sister to retain custody of her children, my parent's grandchildren. The lawyers coordinating this medical malpractice, amongst other things, are being deceitful to my parents in numerous ways:
