@@ -6,6 +6,8 @@ If this was deemed to even be remotely harmful medicaly, then it is clearly harm
 
 ### No, it did not help prove anything but a perjury
 
+If this was used in an attempt to "administer justice", then it was clearly prejudicial to this as it only delayed the administration of such a thing, interrupted it's ability to be more properly addressed within a California Bar Court hearing, and resulted in slandering my name which would clearly violate [ABA Rule 8.4 from the Model Rule of Professional Conduct](https://www.americanbar.org/groups/professional_responsibility/publications/model_rules_of_professional_conduct/rule_8_4_misconduct).
+
 I also have to presume that via the above apparatus, one motivation to keep this was to use it as a "interrogation" device by feeding me hints of a false claim to see how I'd react. It only allowed me to piece together what the claim was, that it concerned a certain date, and finally allowed me to reveal on May 19th via the apparatus of the microphones that the claim was clearly a perjury. Here is a rough timeline, all within the year 2024.
 
 January 17th - I was forced to have a dream where someone claimed I said something that I did not. In the dream, I reacted as such. At the time, I thought it was a prank considering how sordid the dream was, and thought it was a sign that the psychiatric experiment was over considering how immature it felt to me. The dream contained an individual to whom I knew to have graduated in the year 2002, and oddly enough before coming home to take the nap where I took taht dream, my father tailed a Tesla with a liscense plate containing that individual's name and the digits "02". I considered their inclusion in the dream to be a matter of happenstance memory, at the time.
@@ -22,7 +24,7 @@ Had this approach not have been taken, and I was told directly of the lie, I wou
 
 This approach instead has allowed my name to be slandered as an alternative due to the open nature of the camera, microphone, and speaker system which I suspect is also shared via an open internet driven website.
 
-If this was used in an attempt to "administer justice", then it was clearly prejudicial to this as it only delayed the administration of such a thing, interrupted it's ability to be more properly addressed within a California Bar Court hearing, and resulted in slandering my name which would clearly violate [ABA Rule 8.4 from the Model Rule of Professional Conduct](https://www.americanbar.org/groups/professional_responsibility/publications/model_rules_of_professional_conduct/rule_8_4_misconduct).
+Again, if this was used in an attempt to "administer justice", then it was clearly prejudicial to this as it only delayed the administration of such a thing, interrupted it's ability to be more properly addressed within a California Bar Court hearing, and resulted in slandering my name which would clearly violate [ABA Rule 8.4 from the Model Rule of Professional Conduct](https://www.americanbar.org/groups/professional_responsibility/publications/model_rules_of_professional_conduct/rule_8_4_misconduct).
 
 ### The DSM is not a Forensic Text
 
