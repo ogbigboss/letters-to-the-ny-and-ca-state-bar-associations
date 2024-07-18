@@ -1,5 +1,11 @@
 # Prejudicial Behavior Omnibus
 
+## The Hillside Avenue "Male Karen" Incident
+
+> It is professional misconduct for a lawyer to: ... engage in conduct that is prejudicial to the administration of justice
+>
+> - [ABA Rule 8.4 from the Model Rule of Professional Conduct](https://www.americanbar.org/groups/professional_responsibility/publications/model_rules_of_professional_conduct/rule_8_4_misconduct).
+
 ## The Surveillance System delayed an administration of Justice by being indirect vs. just telling me what you idiots were on about
 
 Please see a detailed run down of how the surveillance system only delayed an administration of justice and was prejudicial to me in the process in this subsection of [Lawyers Are Not Doctors](https://github.com/ogbigboss/letters-to-the-ny-and-ca-state-bar-associations/blob/main/01-lawyers-are-not-doctors.md#no-it-did-not-help-prove-anything-but-a-perjury).
@@ -15,5 +21,3 @@ Is there any other value than harming the person you are in question for wrongfu
 ### Keeping a Speaker System in the Vents Active Where I sleep Despite the Psychological Research It Was Installed For Being Cancelled nearly 6 Months Ago
 
 Why is this speaker still in the vents? Why were others outside the lawyers themselves allowed to use it, particularly after an IRB deemed ******** university to be functioning against basic medical ethics? Why did the lawyers allow others to sleep deprieve and psychologically bully me for all but one day in the month of June with it, some 5 months after the research was deemed unethical?
-
-### The Hillside Avenue "Male Karen" Incident
