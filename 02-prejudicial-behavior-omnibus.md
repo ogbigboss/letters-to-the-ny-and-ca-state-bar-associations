@@ -1,10 +1,11 @@
 # Prejudicial Behavior Omnibus
 
-## The Hillside Avenue "Male Karen" Incident
-
 > It is professional misconduct for a lawyer to: ... engage in conduct that is prejudicial to the administration of justice
 >
 > - [ABA Rule 8.4 from the Model Rule of Professional Conduct](https://www.americanbar.org/groups/professional_responsibility/publications/model_rules_of_professional_conduct/rule_8_4_misconduct).
+
+## The Hillside Avenue "Male Karen" Incident
+
 
 ## The Surveillance System delayed an administration of Justice by being indirect vs. just telling me what you idiots were on about
 
