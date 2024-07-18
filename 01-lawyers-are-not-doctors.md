@@ -22,6 +22,8 @@ Had this approach not have been taken, and I was told directly of the lie, I wou
 
 This approach instead has allowed my name to be slandered as an alternative due to the open nature of the camera, microphone, and speaker system which I suspect is also shared via an open internet driven website.
 
+If this was used in an attempt to "administer justice", then it was clearly prejudicial to this as it only delayed the administration of such a thing, interrupted it's ability to be more properly addressed within a California Bar Court hearing, and resulted in slandering my name which would clearly violate [ABA Rule 8.4 from the Model Rule of Professional Conduct](https://www.americanbar.org/groups/professional_responsibility/publications/model_rules_of_professional_conduct/rule_8_4_misconduct).
+
 ### The DSM is not a Forensic Text
 
 At several times past the first two weeks of January, it felt like lawyers were nit picking the DSM in an attempt to validate a false claim about my mental capacity, one that psychiatrists seem unwilling to confront in a consensual manner. This gives me the suspicion that lawyers were attempting to use the DSM as a forensic text in Bar proceedings to defend their mistatements against me.
