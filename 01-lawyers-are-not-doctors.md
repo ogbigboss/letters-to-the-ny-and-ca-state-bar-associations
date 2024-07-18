@@ -18,9 +18,9 @@ May 7th - While walking in the parking lot of the Montclair Art Museum, heading 
 
 May 19th - After 12 days of considering if it could be related, I realized in the year 2002 a car theft took place involving an individual I am related to who had such a simple, boring, loserish lifestyle that they did very little which would allow me to remember one of the few things I can remember about them in the year 2002, which was that they left the garage door open allowing my parent's car to be stolen while leaving the three of us in the house. I utterred this story out loud to the surveillance system on May 19th, 2024, and saw many reactions that seemed to indicate excitement. A number of odd behaviors that seemed to relate to this story seemed to stop after that, and I assumed an individual I am related to may have perjured themselves.
 
-This is to say, it took me 12 days after being "hinted" over a nearly 5 month period via the camera, microphone, speaker, and general stalking of my life waht the situation may have been in an effort to portray me as guilty of it, and within 12 days afte realizing what may have been said, I was able to put together how it was a perjury.
+This is to say, it took me 12 days after being "hinted" over a nearly 5 month period via the camera, microphone, speaker, and general stalking of my life what the situation may have been in an effort to portray me as guilty of, and within 12 days after realizing what may have been said, I was able to put together how it was a perjury.
 
-Had this approach not have been taken, and I was told directly of the lie, I would have been able to point it out as sooner.
+Had this approach not have been taken, and I was told directly of the lie, I would have been able to point it out much sooner than 5 months, I'd imagine.
 
 This approach instead has allowed my name to be slandered as an alternative due to the open nature of the camera, microphone, and speaker system which I suspect is also shared via an open internet driven website.
 
