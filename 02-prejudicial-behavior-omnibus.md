@@ -6,6 +6,13 @@
 
 ## The Hillside Avenue "Male Karen" Incident
 
+On August 29th, 2023, on Hillside Ave in Montclair NJ, an individual accosted me and then used that interaction to say I had "psycho eyes" and was harassing them, knowing a police car normally parked a block away on Orange and Hillside Ave. They immediately accosted the police officer and attempted to have me arrested for, well, anything.
+
+The officer of course declined as I wasn't doing anything illegal.
+
+I am highly suspicious this individual was working in tandem with the lawyers, and was purposefully attempting to have me arrested given that I myself had hearings later that year in early October for charges which I was not convicted for and did not plead guilty to, but had I been arrested that day on August 29th via a technique known colloquially as "Karen-ing", I may have faced difficulty with that separate legal situation.
+
+This was clearly, if the individual had any connection to the lawyers facing misconduct charges, indirectly or tangentially through their social groups, an attempt to harm the proper administration of justice. A partial video of the incident can be found [here](https://www.dropbox.com/scl/fi/lee1qgeu5epqk44dw6j2l/IMG_0642.MOV?rlkey=3b82x77p6dx21wnuxzd77cyq7&dl=0).
 
 ## The Surveillance System delayed an administration of Justice by being indirect vs. just telling me what you idiots were on about
 
