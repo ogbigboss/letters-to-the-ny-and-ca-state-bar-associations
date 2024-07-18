@@ -1,5 +1,9 @@
 # Prejudicial Behavior Omnibus
 
+## The Surveillance System delayed an administration of Justice by being indirect vs. just telling me what you idiots were on about
+
+Please see a detailed run down of how the surveillance system only delayed an administration of justice and was prejudicial to me in the process in this subsection of [Lawyers Are Not Doctors](https://github.com/ogbigboss/letters-to-the-ny-and-ca-state-bar-associations/).
+
 ### Keeping a Surveillance System Running Past it Having Immediate Utility For The Purposes It Was Created
 
 You and a production company set up this surveillance system in my parent's house to attempt to provide proof to what later turned out to be a perjury provable by a car theft report you could have looked up yourself. And yet, over a month after knowing the original purpose of the surveillance system was moot, you keep it running.
