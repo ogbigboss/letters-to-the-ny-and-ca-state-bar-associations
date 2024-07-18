@@ -2,7 +2,7 @@
 
 ## The Surveillance System delayed an administration of Justice by being indirect vs. just telling me what you idiots were on about
 
-Please see a detailed run down of how the surveillance system only delayed an administration of justice and was prejudicial to me in the process in this subsection of [Lawyers Are Not Doctors](https://github.com/ogbigboss/letters-to-the-ny-and-ca-state-bar-associations/).
+Please see a detailed run down of how the surveillance system only delayed an administration of justice and was prejudicial to me in the process in this subsection of [Lawyers Are Not Doctors](https://github.com/ogbigboss/letters-to-the-ny-and-ca-state-bar-associations/blob/main/01-lawyers-are-not-doctors.md#no-it-did-not-help-prove-anything-but-a-perjury).
 
 ### Keeping a Surveillance System Running Past it Having Immediate Utility For The Purposes It Was Created
 
