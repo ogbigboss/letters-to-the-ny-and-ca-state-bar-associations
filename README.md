@@ -4,6 +4,14 @@ Please click the above links for the letters themselves. The below is a log of u
 
 ## Update Log
 
+### 09-25-2024
+
+Oh for fucks sakes I haven't touched this "fictional" thing in over two months and I'm still here?
+
+This was a bad idea. It was foolish to rely on Reality TV as a guiding construct for any legal actions whatsoever. Yes, this was criminal malpractice - it was at least medically unethical! Sure, maybe these lawyers should be disciplined for it, but in any normal case, a civil lawsuit or a criminal investigation would take place before any legal disciplinary review, and the idea that a rock star fueled reality tv show should influence any of that is... foolish.
+
+But maybe I'm wrong and this'll all be over before I expound on the above!
+
 ### 07-15-2024
 
 I'm updating the name of this repo to reflect that the information may also be important to the California State Bar and Supreme Court, the latter of which may be deciding on an appeal to the former group's decisions on attorney discipline.
