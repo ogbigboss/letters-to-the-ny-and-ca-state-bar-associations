@@ -12,6 +12,8 @@ This was a bad idea. It was foolish to rely on Reality TV as a guiding construct
 
 But maybe I'm wrong and this'll all be over before I expound on the above!
 
+![wrap-it-up](https://github.com/user-attachments/assets/bd26b17b-6a81-4492-a934-541cd065f985)
+
 ### 07-15-2024
 
 I'm updating the name of this repo to reflect that the information may also be important to the California State Bar and Supreme Court, the latter of which may be deciding on an appeal to the former group's decisions on attorney discipline.
